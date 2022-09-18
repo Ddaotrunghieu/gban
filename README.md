@@ -1,3 +1,3 @@
 # gban
-Mặt Lồn Thì Vào Đây 🐸🤝
+Gban Dành Cho Những Thg Trêu Thầy 🐸🤝
 #Kaneki 
